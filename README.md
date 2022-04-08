@@ -5,4 +5,3 @@
 - 👯 I’m looking to collaborate on the IT world!
 - 💬 Ask me about soft skills.
 - 📫 How to reach me: bds.mindful@gmail.com
-- 😄 Pronouns: Dami
